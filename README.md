@@ -1,4 +1,5 @@
 # Resume
+![Viral Jani's Profile Picture](./Viral_Profile_Photo_3.jpeg)
 # VIRAL JANI
 Jacksonville, FL | 📞: +1-904-348-0160 | 📧: viraljani40@gmail.com
 
